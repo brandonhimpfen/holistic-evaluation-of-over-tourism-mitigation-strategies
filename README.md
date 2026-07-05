@@ -1,1 +1,1 @@
-# holistic-evaluation-of-over-tourism-mitigation-strategies
+# Holistic Evaluation of Over-Tourism Mitigation Strategies 
